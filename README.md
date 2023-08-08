@@ -1,12 +1,12 @@
 # Introduction
-## Why must we choose you?  
-I am Sricharan, idantha neek cheppala pakkaki dengey
-## What is your plan for the next 6 months  
-Learn as much as possible and beat the shit outta Chandan if possible
-## How would you contribute back to the club  
-Hmm i give some inputs n shit
-## Do you have any feedback on the selection process  
-I onli monitoring the process mf
+### Why must we choose you?  
+I am Sricharan, I did all the tasks and I might be helpful for the club in some ways, so please select meee.....
+### What is your plan for the next 6 months  
+Learn as much as possible and share it.
+### How would you contribute back to the club  
+I will do my best for the club's welfare and give some inputs and sources if I find any..
+### Do you have any feedback on the selection process  
+I think all the tasks were good.
 
 # Tasks Status
 
