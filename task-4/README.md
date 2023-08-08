@@ -1,0 +1,1 @@
+![Drums Image](photo_2023-08-07_16-11-43.jpg)
